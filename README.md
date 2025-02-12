@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Marcos-dotcom1
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing except with my wife
+- 📫 How to reach me, dont
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Otters are very aggresive and will kill you if you jump in their territory
